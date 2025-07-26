@@ -1,1 +1,1 @@
-Dveops class 1 just started
+Dveops class 1 just started like serioulsy
